@@ -1,3 +1,1 @@
-# betaCat
-GOOOOOOOOOOOOOOOOOO
-ɽ�糬������
+# betaCatffff
